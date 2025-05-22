@@ -5,9 +5,7 @@
 
 " This account is **dedicated** to the character [Aventurine](https://honkai-star-rail.fandom.com/wiki/Aventurine) from the game; [Honkai Star Rail](https://hsr.hoyoverse.com/en-us/), 
 
-I did this just because I love him as a character and everything involving him!! Here you will see cosplays and *different versions* of him in ***Ponytown***, 
-
-*Plus having a **Rentry** with* art appreciations *or* videos including him! ***(with credits ofc)*** "
+I did this just because I love him as a character and everything involving him!! "
 
 ![](https://media1.tenor.com/m/aadBjznPA4wAAAAd/aventurine-aventurine-leaks.gif)
 
@@ -42,4 +40,4 @@ After that he appeared when Expresso Astral arrived at the *Penacony Hotel* and 
 
 PLEASE PLAY AND YOU WILL GET A BETTER EXPERIENCE AND KNOWLEDGE ABOUT IT!! I'm terrible at summarizing things :(
 
-![AWAWA I CRIED A LOT, AVENTURINEEEEEEEEEEEEEEE WAWAWWA](https://64.media.tumblr.com/9dc9f34db0a6ecc8f212037e69b2c41c/0c05d7848b79d5c3-37/s400x600/a05ebe2d690cffcdc68b40d393f54bb2e4a49e20.gifv)
+I CRIED A LOT, AVENTURINEEEEEEEEEEEEEEE
